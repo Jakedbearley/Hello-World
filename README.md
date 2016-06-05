@@ -1,2 +1,3 @@
 # Hello-World
 A place of mind...
+Knowledge hungry and serious.
